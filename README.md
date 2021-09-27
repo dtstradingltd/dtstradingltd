@@ -1,4 +1,4 @@
-- 👋 Hi, We are DTS Trading Limited
+- 👋 Hi, We are DTS Trading recycling waste plastics.
 - 👀 We are a waste management plastic recycling company based in Droitwich Spa, England.
 - 🌱 We recycle every type of plastic scrap and produces high-quality regrind and compounded materials, from a range of plastics.
 - 💞️ We process all types of plastic and most polymer types in all formats including:
